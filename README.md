@@ -1,5 +1,5 @@
 ## Hi there 👋 my name is Catalina
-👩🏻‍🎓 I'm currently pursuing an MPA degree at Columbia University
+👩🏻‍🎓 I'm an economist and I'm currently pursuing an MPA degree at Columbia University
 
 🇨🇴 I'm proudly Colombian
 
